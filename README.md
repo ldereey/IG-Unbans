@@ -14,4 +14,4 @@ ALL TYPES OF RECOVERIES WITH 100% SUCCESS RATE 💎
 
 [ Contact me to know the prices🤝 ] 🌟.
 
-T.me/Aldereey
+https://T.me/Aldereey
